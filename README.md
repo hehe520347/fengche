@@ -10,6 +10,7 @@
 
 官方QQ  ：2789585759
 官方微信：m5000006
+小米商店：http://app.mi.com/details?id=com.jm.wind
 
 凭什么敢号称全行业最强！
 
